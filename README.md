@@ -19,4 +19,6 @@ dd
 fdsfdsfdsff
 
 
-sory wywalilo mnie na komputerze
+sory wywalilo mnie na komputerzeee
+
+dsa
