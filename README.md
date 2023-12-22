@@ -19,4 +19,4 @@ dd
 fdsfdsfdsff
 
 
-reset michau
+sory wywalilo mnie na komputerze
